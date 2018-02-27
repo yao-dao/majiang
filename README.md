@@ -1,0 +1,2 @@
+# majiang
+youxi
